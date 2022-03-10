@@ -5,7 +5,7 @@
 👯 I’m looking to collaborate on anything really.  
 🤔 I’m looking for help with everything really.  
 💬 Ask me about my coding journey!  
-📫 How to reach me: stephanie-kuihg@gmail.com  
+📫 How to reach me: stephanie.kuihg@gmail.com  
 😄 Pronouns: She/Her  
 ⚡ Fun fact: I was working as an Architect prior to exploring a career in tech!  
 
